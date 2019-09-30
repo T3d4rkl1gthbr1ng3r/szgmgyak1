@@ -1,0 +1,2 @@
+# szgmgyak1
+Thefirstripofmylife
